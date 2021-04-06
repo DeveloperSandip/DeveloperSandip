@@ -1,1 +1,1 @@
-# Hi ![waving hand](https://media.tenor.com/images/30169e4a670daf12443df7d2dd140176/tenor.gif)...Thank you for checking my profile
+# Hi ![waving hand](https://im7.ezgif.com/tmp/ezgif-7-b3e87ba5c50a.gif) Thank you for checking my profile
